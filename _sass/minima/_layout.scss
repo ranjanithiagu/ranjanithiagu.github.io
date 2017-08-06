@@ -166,6 +166,10 @@
   padding: $spacing-unit 0;
   text-align: justify;
   font-size: 20px;
+    @include media-query($on-palm) {
+        font-size: 12px;
+        text-align: justify;
+  }
 }
 
 .page-heading {
