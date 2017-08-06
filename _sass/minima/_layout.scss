@@ -167,8 +167,8 @@
   text-align: justify;
   font-size: 20px;
     @include media-query($on-palm) {
-        font-size: 12px;
-        text-align: justify;
+        font-size: 6px;
+        text-align: left;
   }
 }
 
