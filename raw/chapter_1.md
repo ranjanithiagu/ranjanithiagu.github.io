@@ -1,4 +1,4 @@
-# Journey into a world less traversed
+# Journey into a World Less Traversed
 
 Human beings come with a destiny into this beautiful world. Depending on the country, religion and the times in which we are born, the experiences we go through differ. Everyone is unique. No two things or no two persons are similar, cannot be similar. Some lives are event-less. Some are beds of roses. Some are full of struggles. A small incident may completely change the course of our life. Though these things are predestined, our approach towards such happenings can always be positive. 
 
