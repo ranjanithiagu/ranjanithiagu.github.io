@@ -11,5 +11,7 @@ At this point I must digress and share something. Parents who find out early tha
 Life gives us experiences, surprises everyday. Though Raghavun was different, he had never given us any problems either. But on one unforgettable day, Raghavun started banging his forehead with his fists, crying in a loud voice. I felt a chill through my spine. We tried to stop him from harming himself, but the bad behaviour became worse when we tried to intervene. It lasted for less than a minute and the next minute he behaved as though nothing had happened. We heaved a sigh of relief but our peace was short lived. The frequency of the behaviour increased and he hurt himself badly, banging his head against cots and walls. After such outbursts, he got very tired and simply lay down on the bed. Though he hurt himself, he never meddled with Karthik or hit anybody. Our hearts would sink whenever there was a tantrum. For Karthik, it was part of life and due to God's abundant grace, it did not affect him or his growth in any way.
 
 <hr>
+<span style="display:flex; justify-content: space-between;">
+	<a href="index.html">Home</a></span> 
 
 To be continued...

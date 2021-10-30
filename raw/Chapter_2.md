@@ -24,5 +24,6 @@ This was the general outline of the condition given by the doctor. I felt as if 
 
 <hr>
 <span style="display:flex; justify-content: space-between;">
-	<a href="index.html">Home</a> <a href="Chapter_3.html">Chapter_3</a> </span> 
+	<a href="index.html">Home</a> <a href="Chapter_3.html">Chapter-3</a> </span> 
+
 

@@ -18,4 +18,4 @@ At this point I would like to pause and tell young parents something. Never allo
 
 <hr>
 <span style="display:flex; justify-content: space-between;">
-	<a href="index.html">Home</a> <a href="Chapter_2.html">Chapter_2</a> </span> 
+	<a href="index.html">Home</a> <a href="Chapter_2.html">Chapter-2</a> </span> 
