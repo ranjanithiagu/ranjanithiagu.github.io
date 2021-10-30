@@ -14,3 +14,6 @@ It was only after I started going to the centre, did I come to know that there w
 
 I must say I started enjoying the sessions. When Thiagu returned home from office I had an interesting story to tell him everyday. Our world revolved around Raghavun. We woke up with a lot of hope with every sunrise, worked with Raghavun, taught him simple things, enjoyed the little improvements he showed. We started sleeping peacefully and got used to his sleeping pattern. Somehow we never worried that he was not like other children. We accepted his condition as God-given. When parents start accepting special children, the world will also do that. We had wonderful neighbours, friends who empathised with our condition and they were ready to extend any help.
 
+<hr>
+<span style="display:flex; justify-content: space-between;">
+	<a href="index.html">Home</a> <a href="Chapter_4.html">Chapter_4</a> </span> 

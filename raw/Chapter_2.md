@@ -22,3 +22,7 @@ The doctor then explained the condition:
 
 This was the general outline of the condition given by the doctor. I felt as if we had received a blow with every sentence the doctor spoke. He was kind enough to explain the condition in detail and assured us that we would get better guidance from experts at NIMHANS.
 
+<hr>
+<span style="display:flex; justify-content: space-between;">
+	<a href="index.html">Home</a> <a href="Chapter_3.html">Chapter_3</a> </span> 
+
