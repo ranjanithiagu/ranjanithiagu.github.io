@@ -8,4 +8,4 @@
 
 <a href="https://ranjanithiagu.github.io/Chapter_3.html">Chapter-3: Acceptance</a>
 
-<a href="https://ranjanithiagu.github.io/Chapter_4.html">Chapter-4: Another Brith</a>
+<a href="https://ranjanithiagu.github.io/Chapter_4.html">Chapter-4: Another Birth</a>
