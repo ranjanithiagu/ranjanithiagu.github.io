@@ -10,4 +10,8 @@
 
 <a href="https://ranjanithiagu.github.io/Chapter_4.html">Chapter-4: Another Birth</a>
 
+<a href="https://ranjanithiagu.github.io/Chapter_5.html">Chapter-5: Therapy Continues</a>
+
+<a href="https://ranjanithiagu.github.io/Chapter_6.html">Chapter-6: Special Schools</a>
+
 To be continued...

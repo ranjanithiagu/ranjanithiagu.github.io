@@ -12,6 +12,5 @@ Life gives us experiences, surprises everyday. Though Raghavun was different, he
 
 <hr>
 <span style="display:flex; justify-content: space-between;">
-	<a href="index.html">Home</a></span> 
+	<a href="index.html">Home</a> <a href="Chapter_5.html">Chapter-5</a> </span> 
 
-To be continued...
