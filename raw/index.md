@@ -14,7 +14,7 @@
 
 <a href="https://ranjanithiagu.github.io/Chapter_6.html">Chapter-6: Special Schools</a>
 
-<a href="https://ranjanithiagu.github.io/Chapter_7.html">Chapter-6: Love What You Do</a>
+<a href="https://ranjanithiagu.github.io/Chapter_7.html">Chapter-7: Love What You Do</a>
 
 <a href="https://ranjanithiagu.github.io/Chapter_8.html">Chapter-8: Silent Sibling</a>
 
