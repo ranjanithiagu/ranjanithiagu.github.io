@@ -16,6 +16,6 @@ Luckily, most of his teachers and friends understood him. Few people did not und
 
 <hr>
 <span style="display:flex; justify-content: space-between;">
-	<a href="index.html">Home</a></span> 
+	<a href="index.html">Home</a> <a href="Chapter_9.html">Chapter-9</a> </span> 
 
-To be continued...
+

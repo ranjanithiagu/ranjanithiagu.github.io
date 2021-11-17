@@ -18,4 +18,8 @@
 
 <a href="https://ranjanithiagu.github.io/Chapter_8.html">Chapter-8: Silent Sibling</a>
 
+<a href="https://ranjanithiagu.github.io/Chapter_9.html">Chapter-9: Skill Development</a>
+
+<a href="https://ranjanithiagu.github.io/Chapter_10.html">Chapter-10: Autism and the Senses</a>
+
 To be continued...
