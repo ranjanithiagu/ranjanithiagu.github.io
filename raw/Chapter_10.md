@@ -19,6 +19,4 @@ In the two months of training, we learnt how people with autism feel. These are 
 
 <hr>
 <span style="display:flex; justify-content: space-between;">
-	<a href="index.html">Home</a></span> 
-
-To be continued...
+	<a href="index.html">Home</a> <a href="Chapter_11.html">Chapter-11</a> </span> 

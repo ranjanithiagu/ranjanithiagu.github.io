@@ -1,0 +1,26 @@
+# Chapter-14: Bright Future
+
+We will certainly face criticism from our family for focusing too much on our child to the extent of ignoring other people and things . Nothing can be done. All criticisms arise because people have difficulty in understanding. So never mind. What I am going to say may sound a bit philosophical but it is true. Actually these children mould us, help us. We become better persons, better human beings . If we just pause to think, we will realise:
+
+1. How very important it is to have a positive attitude always.
+2. The futility of attaching undue importance to simple things in life.
+3.  How eventful every single day and moment is.
+4. How to keep calm when nothing is in place.
+5. How to say no.
+6. How to remove negativity from life and much more. 
+
+Raghavun taught us the purpose of life. Even the best books with motivational essays and stories could not have given us the life lessons we had by just being with Raghavun. We learnt to be grateful for all the little blessings.
+
+There are many videos available now on YouTube on Autism. Mostly they talk about children who are able to learn to read and write. Do not get confused or feel guilty. In few countries they have better infrastructure and the normal schools accept these children. In India it is different. Do in Rome as Romans do. We should be settled and calm in the first place to pass it on to our children. Parents should keep a close watch on the children’s development and decide on the treatment and therapy. Who else will be more concerned about the child than parents? Once you decide, walk on the path with confidence, faith. 
+
+Do not take wrong inputs and vibrations from people around. At the same time, listen to the advice of caring people, good therapists and try to incorporate it in your daily routine if you feel it will work out. This book is about an Indian child, an Indian family. Though all over the globe human emotions are the same, few practical things, the way people of a different country react to the same issue make me say that. And all the books I came across talk only about success stories. I want to stress every one of us is successful in our own way. Whenever I see a young mother walking with an autistic child, my eyes well up. I relive those years when Raghavun was a baby. I wish all fathers of special children are as understanding and loving as Raghavun’s dad and it is a blessing to have a sibling like Karthik. Patience is the key word. With passing years, these children improve. Do not give up. Never get depressed. Teach at least one small thing every day. It will bring about major changes.
+
+We come to the world with a mission. The moment we know our child is different, the mission of our lives reveals itself too clearly to us. Yes. To make the child a complete person as far as possible. To do our best to help the child lead an independent life when we won't be around. To give least problem to the siblings of the child or his caretaker. Many people do great things, sacrifice many things for achieving greater goals. We must definitely do our bit at least for our child. Other things and preoccupations and interests should take a back seat automatically. We are not losing anything. We are only shifting our interests. 
+
+Generally women do it more easily than men. There are many changes in women's lives. A female child is treated differently when she attains puberty. She moves from her parents and goes to live with her husband. When she becomes a mother her responsibilities increase many folds suddenly. Women adapt to changes graciously. But it is difficult for men. With few exceptions men are superficial in general. They are not to blame. They are created that way. It takes time for fathers to shift interests. Some men don't understand. Sensitive men understand better but even they are not ready to leave behind all other interests for the sake of the child. 
+
+We too had problems. In recent years I felt there was an energy drain because Thiagu took his own time to get adjusted and I was in a hurry and in an excited state to include him into our world. Raghavun is thirty two now. When our child enters thirty all relatives and friends in our age group would have finished responsibilities like getting their children married off and the children will be living their lives. Let such things not bother us. We should be moving very calmly like a river. The river is a blessing to the people on its way. In a similar manner that let us radiate happiness to people around us. We shall do our best. We have felt it is worth going to the maximum extent possible to see a smile on Raghavun's face. When things are perfect we never ask why. When there are small deviations we ask "why me"? We shall not question. We shall always be grateful and peaceful. I will be happy if the information shared in this write up helps someone, some family like ours. Will see you all soon again with more positive anecdotes about Raghavun. 
+
+<hr>
+
+Intermission. Stay tuned for part-2...
