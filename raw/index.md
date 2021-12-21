@@ -24,8 +24,9 @@
 
 <a href="https://ranjanithiagu.github.io/Chapter_11.html">Chapter-11: Entering Adulthood</a>
 
-<a href="https://ranjanithiagu.github.io/Chapter_102.html">Chapter-12: Goodbye to Schools</a>
+<a href="https://ranjanithiagu.github.io/Chapter_12.html">Chapter-12: Goodbye to Schools</a>
 
 <a href="https://ranjanithiagu.github.io/Chapter_13.html">Chapter-13: Home Schooling</a>
 
 <a href="https://ranjanithiagu.github.io/Chapter_14.html">Chapter-14: Bright Future</a>
+

@@ -22,5 +22,5 @@ Generally women do it more easily than men. There are many changes in women's li
 We too had problems. In recent years I felt there was an energy drain because Thiagu took his own time to get adjusted and I was in a hurry and in an excited state to include him into our world. Raghavun is thirty two now. When our child enters thirty all relatives and friends in our age group would have finished responsibilities like getting their children married off and the children will be living their lives. Let such things not bother us. We should be moving very calmly like a river. The river is a blessing to the people on its way. In a similar manner that let us radiate happiness to people around us. We shall do our best. We have felt it is worth going to the maximum extent possible to see a smile on Raghavun's face. When things are perfect we never ask why. When there are small deviations we ask "why me"? We shall not question. We shall always be grateful and peaceful. I will be happy if the information shared in this write up helps someone, some family like ours. Will see you all soon again with more positive anecdotes about Raghavun. 
 
 <hr>
-
-Intermission. Stay tuned for part-2...
+<span style="display:flex; justify-content: space-between;">
+	<a href="index.html">Home</a> </span> 
